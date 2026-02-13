@@ -2,4 +2,4 @@
 - 👀 I’m interested in Web development and Python programming
 - 🌱 I’m currently learning Web development
 - 💞️ I’m looking to collaborate on:I'll update it once I'm rady for my projects
-- 📫 How to reach me: jpfatoks@gmail.com, +2347085784087, MrFatokun on Instagram.
+- 📫 How to reach me: mrfatokun@gmail.com, +15127892053, MrFatokun on Instagram.
